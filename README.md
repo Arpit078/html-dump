@@ -1,2 +1,2 @@
 # html-dump
-hey there ! just some useless websites, you are warned not to open cause they are cringe 
+hey there ! just posting stuff that i am learning, you are warned not to open cause they are cringe 
